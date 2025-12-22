@@ -8,7 +8,7 @@
 🍒 ![image](https://64.media.tumblr.com/6b75b466d9d815b391947361c2caf136/ee09abb08cabc6f1-65/s250x400/327939b724f08de226078c2a61d3163d72df19aa.pnj)  ₘᵢₙₒᵣ              ,        
       𝙤𝙢𝙣𝙞𝙨𝙚𝙭𝙪𝙖𝙡 , ᴄᴏꜱᴘʟᴀʏᴇʀ ɪʀʟ !!
 -  - - 𝙉𝘼𝙏𝙄𝙊𝙉𝘼𝙇𝙄𝙏𝙔: 𝚙𝚒𝚕𝚒𝚙𝚒𝚗𝚘          　　　　∿　　🍓 　　　ʿʿ　　　 ⁺　　　◦　        
-‘ㅅ’ . c+h - 𝙙𝙤 𝙣𝙤𝙩 𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 𝙥𝙤𝙣𝙞𝙚𝙨 ! i will literally gnaw off your fingers  x3    ![image](https://64.media.tumblr.com/8d81d5c61571c3fca3cd68308a0a4b24/6c2d8aa8f32322cf-99/s250x400/c6ea88ff59867d4842f9a355fad1720ecb4c5697.gifv)
+‘ㅅ’ . c+h - 𝙙𝙤 𝙣𝙤𝙩 𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 designs ! i will literally gnaw off your fingers  x3    ![image](https://64.media.tumblr.com/8d81d5c61571c3fca3cd68308a0a4b24/6c2d8aa8f32322cf-99/s250x400/c6ea88ff59867d4842f9a355fad1720ecb4c5697.gifv)
 
 
  ![image](https://64.media.tumblr.com/17a84d179deed18291dc4971d56f2e12/14602a119fed64b7-2e/s400x600/e64359ace2479aaa7a87c4213e94da15b1cd2d2a.gifv)
