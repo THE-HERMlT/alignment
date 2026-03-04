@@ -1,29 +1,25 @@
-# 𝙙𝙚𝙧𝙣𝙞è𝙧𝙚 𝙙𝙖𝙣𝙨𝙚 - - ──★ ˙🧷 ̟ !! ![image](https://github.com/user-attachments/assets/f965d71f-501c-4bec-8545-365d9117c941) ![image](https://i.pinimg.com/564x/96/2a/68/962a68186a9f465664eaa98430552e04.jpg) 
 
-:# 𝖺 𝗌𝗐𝖺𝗇 𝗂𝗇 𝖺 𝗅𝖺𝗄𝖾, 𝗌𝖾𝖼𝗋𝖾𝗍𝗌 𝗍𝗈 𝗌𝖾𝖾𝗄 . ❰❰﹒♡
+𝐈𝐍𝐓𝐑𝐎 ![image](https://64.media.tumblr.com/6881ee80dd1d2cd5a5ebedb851afac60/8e4be4c39f609465-47/s400x600/6ac92f8e8ad4e79b3aa64d55101b0ded4209f701.png)
 
- ![image](https://i.pinimg.com/originals/0a/00/b6/0a00b62e444ccf7a8959cdbbf44ddc72.jpg)
+〃✦ ┆
 
-
-🍒 ![image](https://64.media.tumblr.com/6b75b466d9d815b391947361c2caf136/ee09abb08cabc6f1-65/s250x400/327939b724f08de226078c2a61d3163d72df19aa.pnj)  ₘᵢₙₒᵣ              ,        
-      𝙙𝙚𝙢𝙞𝙨𝙚𝙭𝙪𝙖𝙡 , ᴄᴏꜱᴘʟᴀʏᴇʀ ɪʀʟ !!
--  - - 𝙉𝘼𝙏𝙄𝙊𝙉𝘼𝙇𝙄𝙏𝙔: 𝚙𝚒𝚕𝚒𝚙𝚒𝚗𝚘          　　　　∿　　🍓 　　　ʿʿ　　　 ⁺　　　◦　        
-‘ㅅ’ . c+h - 𝙙𝙤 𝙣𝙤𝙩 𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 designs ! i will literally gnaw off your fingers  x3    ![image](https://64.media.tumblr.com/8d81d5c61571c3fca3cd68308a0a4b24/6c2d8aa8f32322cf-99/s250x400/c6ea88ff59867d4842f9a355fad1720ecb4c5697.gifv)
-
-
- ![image](https://64.media.tumblr.com/17a84d179deed18291dc4971d56f2e12/14602a119fed64b7-2e/s400x600/e64359ace2479aaa7a87c4213e94da15b1cd2d2a.gifv)
- 
- !!? ＤＮＩ: ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ, ᴡᴇɪʀᴅᴏ, ᴀɴʏᴏɴᴇ ᴡʜᴏ'ꜱ ʀᴇᴀʟʟʏ ᴊᴜꜱᴛ ɴᴏᴛ ᴍʏ ᴋɪɴᴅ ᴏꜰ ᴘᴇʀꜱᴏɴ.
- 
- ᶠᵉᵉˡ ᶠʳᵉᵉ ᵗᵒ ⁱⁿᵗ ⁱᶠ ʸᵒᵘ'ᵛᵉ ʳᵉᵃᵈ ᵗʰⁱˢ ᵃⁿᵈ ᵘⁿᵈᵉʳˢᵗᵒᵒᵈ ᵐʸ ᴰᴺᴵ'ˢ, ᴵ ᵈᵒⁿ'ᵗ ᵇⁱᵗᵉ :³
- 
- 
- ![image](https://64.media.tumblr.com/9f75d6c4bda7ec7dc209f6b14a35cd84/162b4ce8768ca04c-71/s2048x3072/b4ac6c1b9f42f8fc13b94d906370b9be6280ae8d.pnj)
-
- that's about it.
-
- 
-
-
-
+    ｃａｓｓｉｅ / chiyo　҂ㅤㅤ        
   
+             they / them  ♱   𝘥𝘦𝘮𝘪𝘴𝘦𝘹𝘶𝘢𝘭　═╬   ㅤ     ㅤ  𓈒 
+										꒪ㅤ  17+      .   taken !
+
+
+![image](https://64.media.tumblr.com/3cc5a7ebf56be0f0b74d515b84e36983/8e4be4c39f609465-ef/s100x200/88c32c91df7cec61f75fc078eb851f534feb404d.png)                                                                                   ![image](https://64.media.tumblr.com/4215cacb490409cae2fb6d38d1362348/415dba9ce135bfdc-e0/s400x600/32a8fb0a365f77adcc670d530f9929ecda19fe9d.png)
+
+
+【﻿ＤＮＩ ! and miscellaneous】   
+![image](https://64.media.tumblr.com/86690adb910cf3f425630efc7dee8958/415dba9ce135bfdc-c7/s100x200/8d61ccff2c8f847c1cbb92ed1d7806c984072b83.png) 
+╭ @DO NOT TAKE INSPO ──★
+
+│ proshippers, homophobes , jokes about pedophillia and sensitive topics, etc 
+
+│ cuddle and int FREELY if you dont belong in my dni list
+
+╰  interests : genshin, hsr, anime, cosplaying (online and irl!) 
+
+![image](https://64.media.tumblr.com/30471b860119adbea832d49c3f9568e1/8e4be4c39f609465-44/s2048x3072/29d0da50a11d3756224f0f5d60a5a5bf95f19592.png)
