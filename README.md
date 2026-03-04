@@ -23,3 +23,6 @@
 ╰  interests : genshin, hsr, anime, cosplaying (online and irl!) 
 
 ![image](https://64.media.tumblr.com/30471b860119adbea832d49c3f9568e1/8e4be4c39f609465-44/s2048x3072/29d0da50a11d3756224f0f5d60a5a5bf95f19592.png)
+
+
+tumblr crds to: prismaticvampire , abudasima 
