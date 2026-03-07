@@ -6,7 +6,8 @@
     ｃａｓｓｉｅ / chiyo　҂ㅤㅤ        
   
              they / them  ♱   𝘥𝘦𝘮𝘪𝘴𝘦𝘹𝘶𝘢𝘭　═╬   ㅤ     ㅤ  𓈒 
-										꒪ㅤ  17+      .   taken !
+										
+									꒪ㅤ  17+  multishipper .   taken !
 
 
 ![image](https://64.media.tumblr.com/3cc5a7ebf56be0f0b74d515b84e36983/8e4be4c39f609465-ef/s100x200/88c32c91df7cec61f75fc078eb851f534feb404d.png)                                                                                   ![image](https://64.media.tumblr.com/4215cacb490409cae2fb6d38d1362348/415dba9ce135bfdc-e0/s400x600/32a8fb0a365f77adcc670d530f9929ecda19fe9d.png)
