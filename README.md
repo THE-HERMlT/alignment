@@ -8,7 +8,8 @@
 	𝘥𝘦𝘮𝘪𝘴𝘦𝘹𝘶𝘢𝘭　═╬
 	꒪ㅤ  17+  multishipper .   
 	   taken !
-	   old names :: Chiyo, 
+	   
+	   𝙤𝙡𝙙 𝙣𝙖𝙢𝙚𝙨 :: Chiyo, 
 	   Saturn,       
 	   Ven
 
