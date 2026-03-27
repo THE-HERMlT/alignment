@@ -25,6 +25,8 @@
 
 │ cuddle and int FREELY if you dont belong in my dni list, 
 
+│ if i block, hide, or unfriend you, please leave me be. i'm an extremely avoidant person and won't speak to you afterwards!
+
 │i dont really follow people back here in github unless im asked to so pls lmk!
 
 ╰  interests : genshin, hsr, anime, cosplaying (online and irl!) 
