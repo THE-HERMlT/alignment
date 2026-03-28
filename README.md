@@ -21,15 +21,23 @@
 ![image](https://64.media.tumblr.com/86690adb910cf3f425630efc7dee8958/415dba9ce135bfdc-c7/s100x200/8d61ccff2c8f847c1cbb92ed1d7806c984072b83.png) 
 ╭ @DO NOT TAKE INSPO ──★
 
-│ proshippers, homophobes , jokes about pedophillia and sensitive topics, etc 
+│ proshippers, homophobes , jokes about 
+  pedophillia and sensitive topics, etc 
 
-│ cuddle and int FREELY if you dont belong in my dni list, 
+│ cuddle and int FREELY if you dont 
+  belong in my dni list, 
 
-│ if i block, hide, or unfriend you, please leave me be. i'm an extremely avoidant person and won't speak to you afterwards!
+│ if i block, hide, or unfriend you, 
+  please leave me be. i'm an extremely 
+  avoidant person and won't speak to 
+  you afterwards!
 
-│i dont really follow people back here in github unless im asked to so pls lmk!
+│  i dont really follow people back 
+   here in github unless im asked to so 
+   pls lmk!
 
-╰  interests : genshin, hsr, anime, cosplaying (online and irl!) 
+╰  interests : genshin, hsr, anime, 
+   cosplaying (online and irl!) 
 
 ![image](https://64.media.tumblr.com/30471b860119adbea832d49c3f9568e1/8e4be4c39f609465-44/s2048x3072/29d0da50a11d3756224f0f5d60a5a5bf95f19592.png)
 
